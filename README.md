@@ -1,4 +1,4 @@
-
+the principle pages 
 
 ![image](https://github.com/user-attachments/assets/6ba60278-bcf9-4950-8fec-c5055c5ca452)
 
